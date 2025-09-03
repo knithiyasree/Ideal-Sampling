@@ -198,7 +198,7 @@ ideal
 Natural
 <img width="1390" height="989" alt="image" src="https://github.com/user-attachments/assets/2cf176c5-0b05-4ee5-abcb-f61bc13967bb" />
 Flat-top
-<img width="1390" height="989" alt="image" src="https://github.com/user-attachments/assets/01635c7b-3df9-4916-8ce4-3fb51ecb7f00" />
+![WhatsApp Image 2025-09-03 at 15 20 55_29e9f8ac](https://github.com/user-attachments/assets/17742b10-9bfc-45d6-91ff-7fe651928940)
 
 
 
